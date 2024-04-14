@@ -1,4 +1,4 @@
-# Tender Hack, Решение команды MISIS Ginseng Strip
+# Tender Hack, Решение команды MISIS Ginseng Strip (6 место)
 
 Team Members:
 
